@@ -1,2 +1,2 @@
 https://github.com/PonPonzuuuuu?tab=repositories
-のexee版
+のexe版
